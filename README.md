@@ -12,3 +12,8 @@ It will depend on the customer that how much time they use like Rs.200 for one h
 <h3>• Uber Diving + Selling and marketing expensive Things</h3>
 Uber driver, selling jewelry, gold jewelry inside the Uber car
 You Can show the variety of different children’s types to the customer to the riders and if they like jewellery buy it.
+
+<h3> Start Shopify Local Dropshipping In Pakistan</h3>
+<p>Shopify is the best thing Right now in 2023 to do in pakistan if you are willing to do business in pakistan.<br>
+Drop shipping via Daraz and Shopify will lift up your knowledge about business.<br>
+you just have to select a product to achieve the desired out (The Selection of Product over its profit margin and Resources is very important to take into considration)</p>
